@@ -1,1 +1,0 @@
-Lessons that have been solved by students
